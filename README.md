@@ -1,2 +1,0 @@
-# Goblininfosite
-GOBLIN INFO SITE JUST FOR PRACTICE
